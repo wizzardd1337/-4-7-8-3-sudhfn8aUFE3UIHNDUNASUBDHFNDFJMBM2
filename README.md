@@ -1,2 +1,3 @@
-# -4-7-8-3-sudhfn8aUFE3UIHNDUNASUBDHFNDFJMBM2
-Ц4К7ЫВАЫВАОПТВПГПТФЦКГШУПТ8ШФПУПГППТППППП3ШПГППППППГПШПФПАВПМТЫВОИТМИОШЫТИГРЫОУЬПРГРТsudhfn8aUFE3UIHNDUNASUBDHFNDFJMBM2
+(XYPR-XsqR-FgZX) [30]
+(ABCD-1234-EFGH) [15]
+(DFEW-PoDM-QMNX) [7]
